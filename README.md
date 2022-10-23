@@ -1,2 +1,0 @@
-# OMGBingBongGus-pack
-die now
